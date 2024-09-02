@@ -1,16 +1,16 @@
-## Hi there 👋
+## welcome in my perfil 🥇
 
-<!--
-**vitoriactk2024/vitoriactk2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+my namme is Vitoria Andrade
 
-Here are some ideas to get you started:
+- I'M HIGH SCHOOL IN TOSHIMARO KACUTA
+- I'M STUDY INGLISH IN [SPEAK] (https://www.speak.com.br)
+- ESTOU UTILIZANDO ESTE ESPAÇO PARA ME DESCREVER E COMPARTILHAR MEUS PROJETOS
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- ## você pode entrar em contato comigo 📧
+
+- 00001115245107SP@al.educacao.sp.gov.br
+- 
+- @viii_andrad3
+
+![](https://media1.tenor.com/m/B80MQLJXvpsAAAAC/gavin-meme.gif)  
+
